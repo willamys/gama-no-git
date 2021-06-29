@@ -1,0 +1,1 @@
+Estou achando o curso da gama muito bom. As dicas sobre git estão sendo bastante válidas.
